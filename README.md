@@ -38,3 +38,7 @@ Also this almost feels like cheating.
 
 c'mon barbie lets go party
 ow Ow OOW Yeahcd HacktoberfestPRs/!
+
+Oh I'm having so much fun!
+Well, Barbie, we're just getting started
+Oh, I love you, HacktoberFestPRs! 
